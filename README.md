@@ -1,10 +1,10 @@
 Hey There!!!
 
-I'm Mrinal Kumar (@mrinal15) currently a B.Tech student of IITK.
+I'm Mrinal Kumar (@mrinal15) currently a B.Tech student at IITK.
 
 Interested in => Let's see .............ummmm EVERYTHING
 
-Things I can do => hahahaha........ nothing :'(
+Things I can do => hahaha........ nothing :'(
 
 
 You can contact me at either of the given e-mail addresses
